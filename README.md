@@ -1,4 +1,4 @@
-# Commercial-Video-Feed-Booster-
+# Commercial-Video-Feed-Booster
 Versitron offers commercial-grade video amplifiers, splitters, and feed boosters for security systems in buildings, retail sites, and corporate campuses—ensuring clear, reliable video signal distribution.
 # Versitron | Video Amplifier for Commercial Buildings | Video Splitter for Commercial Security Cameras | Commercial Video Feed Booster | Video Distribution for Corporate Campuses
 
